@@ -1,0 +1,17 @@
+Adrian Cantu
+ja.cantu@my.code.org
+
+##Work Experience
+
+**Substitute Teacher, PSJA ISD
+
+**Teacher, PSJA ISD
+
+
+##Education
+
+**University of Texas Pan American
+BS Computer Information System, 2009
+
+**South Texas College
+AA Computer Science, 2006
